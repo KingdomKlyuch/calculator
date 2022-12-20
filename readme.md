@@ -1,0 +1,1 @@
+Be cool and calculating, this is not a sprint but the beginning of a marathon that will last a lifetime.
